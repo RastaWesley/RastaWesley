@@ -1,6 +1,6 @@
 # Wesley Marcos 
 
-Oi eu sou Wesley Mais conhecido como Rasta
+Oi eu sou Wesley mais conhecido como Rasta
 
 ## Conecte-se comigo
 
